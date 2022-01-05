@@ -7,3 +7,8 @@
 1. I am committed to trying to utilize better time management through calendar
    use.
 2. I am committed to trying a more collaborative style of learning.
+
+
+- I want to give a shoutout to my wife Stephanie. This is a big career change
+  for me, and a bit of a change of pace for the two of us. She has been nothing but supportive and encouraging.
+  Love you babe.
