@@ -12,3 +12,7 @@
 - I want to give a shoutout to my wife Stephanie. This is a big career change
   for me, and a bit of a change of pace for the two of us. She has been nothing but supportive and encouraging.
   Love you babe.
+
+
+- This is a new thought
+- This is another thought
