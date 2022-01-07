@@ -15,4 +15,3 @@
 
 
 - This is a new thought
-- This is another thought
